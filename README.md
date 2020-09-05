@@ -1,1 +1,1 @@
-# DUMMY TEXT
+# Assel Zholdasbekova, 190103084
